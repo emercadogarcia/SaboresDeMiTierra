@@ -3,7 +3,7 @@
 🥣 **Sopa Cremosa de Zapallo y Avena**
 🍽️ **Segundo: Majadito batido con huevo y ensalada de tomate**
 
-![imagen](img/menu-lunes.png)
+![imagen](img/menu-martes.png)
 
 ---
 

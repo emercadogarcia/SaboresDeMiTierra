@@ -2,6 +2,8 @@
 
 🍽️ **Segundo: Fideo con huevo, tomate y queso criollo**
 
+![imagen](img/menu-viernes.png)
+
 ---
 
 ## 🍽️ **Fideo con huevo, tomate y queso criollo**

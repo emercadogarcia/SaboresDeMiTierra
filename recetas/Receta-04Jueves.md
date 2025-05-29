@@ -2,6 +2,8 @@
 
 🍽️ **Segundo: Arroz con chorrellana de verduras y huevo**
 
+![imagen](img/menu-jueves.png)
+
 ---
 
 ## 🍽️ **Arroz con chorrellana de verduras y huevo**

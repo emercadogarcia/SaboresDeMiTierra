@@ -3,6 +3,8 @@
 🥣 **Sopa de Quinua con Verduras**
 🍽️ **Segundo: Falso conejo con arroz y papa cocida**
 
+![imagen](img/menu-miercoles.png)
+
 ---
 
 ## 🥣 **Sopa de Quinua con Verduras**

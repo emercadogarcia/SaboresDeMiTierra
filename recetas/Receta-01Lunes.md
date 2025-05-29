@@ -3,6 +3,8 @@
 🥣 **Sopa Andina de Papa y Chuño**
 🍽️ **Segundo: Arroz con huevo frito y plátano cocido**
 
+![imagen](img/menu-lunes.png)
+
 ---
 
 ## 🥣 **Sopa Andina de Papa y Chuño**
