@@ -1,5 +1,5 @@
-# Tip de Negocios que puedes hacer
-Tip de negocios - recopilados para hacer negocios
+# Sabores de mi Tierra
+Tip de negocios - recopilados para hacer negocios - Sabores De Mi Tierra.
 
 
 # 📅 Menú semanal: [Lunes](./recetas/Receta-01Lunes.md) · [Martes](./recetas/Receta-02Martes.md) · [Miércoles](./recetas/Receta-03Miercoles.md) · [Jueves](./recetas/Receta-04Jueves.md) · [Viernes](./recetas/Receta-05Viernes.md)
