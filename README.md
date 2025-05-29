@@ -46,3 +46,84 @@ Sopa de Lentejas – Nutritiva, ideal para invierno
 Sopa de Fideo – Familiar y fácil de preparar
 
 Luego, podés ampliar con 1 o 2 sopas especiales como la de quinua o trigo mote.
+
+
+
+
+## 🥣 ¡Descubrí los sabores de Bolivia en cada cuchara!
+
+En Santa Cruz de la Sierra, las sopas tradicionales siguen siendo un alimento diario en muchos hogares. Con esta propuesta de **kits soperos 100% vegetales**, podés ofrecer una solución práctica, económica y deliciosa… ¡lista para cocinar en minutos!
+
+Aquí te presento 5 opciones deliciosas, sin carne, ideales para personas que buscan sabor, salud y tradición.
+
+---
+
+### 🥔 1. **Sopa Andina de Papa y Chuño**
+
+Una receta del altiplano boliviano 🌄. Con un toque de orégano, esta sopa reconforta hasta el alma.
+
+> Ingredientes principales: papa, chuño, cebolla, ajo, orégano.
+
+---
+
+### 🎃 2. **Sopa Cremosa de Zapallo y Avena**
+
+Suave, espesa y muy nutritiva. Perfecta para los días frescos o para una cena ligera.
+
+> Ingredientes principales: zapallo, avena, zanahoria, cebolla, perejil.
+
+---
+
+### 🌽 3. **Sopa de Arvejas y Mote**
+
+Una mezcla oriental con mucha textura. Alta en fibra y saciante.
+
+> Ingredientes principales: arvejas verdes, mote cocido, cebolla, tomate, apio.
+
+---
+
+### 🍃 4. **Sopa de Quinua con Verduras**
+
+Súper nutritiva, ideal para quienes buscan energía y proteínas vegetales.
+
+> Ingredientes principales: quinua, papa, zanahoria, cebolla, ajo.
+
+---
+
+### 🥬 5. **Sopa Tropical de Zapallito y Yuca**
+
+Una opción desde el oriente boliviano, cremosa y con sabor hogareño.
+
+> Ingredientes principales: zapallito (calabacín), yuca, tomate, cebolla, perejil.
+
+---
+
+## 🧾 Ingredientes vegetales para kits (porciones para 2-3 personas)
+
+| 🥕 **Ingrediente**    | 📦 **Cantidad Aproximada** | ✍️ **Comentario**       |
+| --------------------- | -------------------------- | ----------------------- |
+| Papa                  | 300g                       | Base clásica boliviana  |
+| Chuño rallado         | 50g                        | Da cuerpo a la sopa     |
+| Zapallo               | 200g                       | Cremoso y dulce         |
+| Avena                 | 50g                        | Espesor y suavidad      |
+| Zanahoria             | 150g                       | Dulzor natural          |
+| Cebolla               | 100g                       | Sofrito base            |
+| Ajo                   | 1-2 dientes                | Potencia el sabor       |
+| Perejil               | 5g picado seco             | Toque final             |
+| Arvejas verdes        | 100g                       | Fibra y textura         |
+| Mote cocido           | 100g                       | Sabor tradicional       |
+| Quinua                | 80g                        | Proteína vegetal        |
+| Yuca cocida           | 100g                       | Textura oriental        |
+| Zapallito (calabacín) | 100g                       | Suave y fresco          |
+| Tomate                | 120g                       | Cuerpo y acidez natural |
+| Apio                  | 50g                        | Aroma y frescura        |
+
+---
+
+### 📣 ¿Querés vender estos kits o hacerlos en casa?
+
+Te ayudamos con recetas, costos y todo lo que necesitás para empezar.
+
+📩 **Contactanos ahora:** [tiendaslucho@gmail.com](mailto:tiendaslucho@gmail.com)
+📍 **Santa Cruz de la Sierra - Entregas a domicilio y por mayor**
+
