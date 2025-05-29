@@ -1,6 +1,10 @@
 # Tip de Negocios que puedes hacer
 Tip de negocios - recopilados para hacer negocios
 
+
+# 📅 Menú semanal: [Lunes](./recetas/Receta-01Lunes.md) · [Martes](./recetas/Receta-02Martes.md) · [Miércoles](./recetas/Receta-03Miercoles.md) · [Jueves](./recetas/Receta-04Jueves.md) · [Viernes](./recetas/Receta-05Viernes.md)
+
+
 ## Tips 1 - Kit sopera
 
 ### 🍲 5 Opciones de Kit Sopera (cada uno rinde para 4 personas)
